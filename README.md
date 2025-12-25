@@ -1,2 +1,0 @@
-# boyfriend.studio
-Art site
